@@ -12,7 +12,7 @@ Uhhhh weird. Kay. Uhm well I play video games, a lot of Cookie Clicker rn hence 
 Aight well I'm running out of things to write so enjoy this cat photo   
 |  
 V
-[Cat! :D](Cat Image.jpg)  
+! [Cat! :D](Cat Image.jpg)  
 (Cat photo by... Katarzyna Modrzejewska? Uhh... yeah that)
 <!--
 **IDON-TEXIST/IDON-TEXIST** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
