@@ -8,6 +8,9 @@ An idiot who doesn't know how to code and made a github account for the lulz.
 I agree
 ### I care about what you do in your life for some reason!
 Uhhhh weird. Kay. Uhm well I play video games, a lot of Cookie Clicker rn hence my [one actual repo](https://github.com/IDON-TEXIST/CC-Keyboard-short-cuts)  
+# Empty stats (oh so empty)  
+[![IDON-T EXIST's empty github stats](https://github-readme-stats.vercel.app/api?username=IDON-TEXIST&count_private=true&show_icons=true&theme=tokyonight&include_all_commits=true&custom_title=How%20is%20this%20an%20A%2B)  
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=IDON-TEXIST&custom_title=Most%20Used%20Languages%20%28lol%29)
 # k
 Aight well I'm running out of things to write so enjoy this cat photo   
 |  
